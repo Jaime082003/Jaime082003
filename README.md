@@ -1,4 +1,4 @@
-- 👋 olá, me chamo Acledson Jaime
+- 👋 olá, eu me chamo Acledson Jaime
 - 👷‍♂️ Atualmente trabalho como assistente administrativo
 - 👨‍🎓 Atualmente estou cursando Gestão da Produção Industrial
   
