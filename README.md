@@ -1,6 +1,6 @@
 - 👋 olá, eu me chamo Acledson Jaime
-- 👷‍♂️ Atualmente trabalho como assistente administrativo
-- 👨‍🎓 Atualmente estou cursando Gestão da Produção Industrial
+- 👷‍♂️ Atualmente trabalho como auxiliar administrativo
+- 👨‍🎓 Atualmente estou cursando Logística 
   
 <!---
 Jaime082003/Jaime082003 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
