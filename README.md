@@ -1,5 +1,5 @@
 - 👋 olá, eu me chamo Acledson Jaime
-- 👷‍♂️ Atualmente trabalho como auxiliar administrativo
+- 👷‍♂️ Atualmente trabalho como Auxiliar Administrativo
 - 👨‍🎓 Atualmente estou cursando Logística 
   
 <!---
